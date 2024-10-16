@@ -1,1 +1,1 @@
-# Proyecto de Ales Xalas, Pau Sabadell y Dani Bañeza
+# Proyecto de Ales Xalas, Pau Sabadell y Dani B
